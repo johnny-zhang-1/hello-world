@@ -1,1 +1,1 @@
-bottom text
+It hurts to live
